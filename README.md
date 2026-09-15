@@ -1,14 +1,7 @@
-<img width="704" height="74" alt="download (4)" src="https://github.com/user-attachments/assets/c005ce50-86fb-48f8-b366-a4e7f4673a8b" />
+<img width="73" height="100" alt="Screenshot 2026-09-13 110835" src="https://github.com/user-attachments/assets/f7ff32d6-5fd5-42d5-942d-0fadc4efa30c" />   <img width="100" height="100" alt="Jason Todd pfp!! (Arkham knight) CREDIT ME❗️" src="https://github.com/user-attachments/assets/53e7683f-c8e6-4783-8af3-b5e49f71c50c" />   <img width="100" height="100" alt="Jason heart" src="https://github.com/user-attachments/assets/33c4bd0f-5861-4295-8771-2c56200f1590" />   <img width="150" height="100" alt="Red Hood Logo (DC Comics)" src="https://github.com/user-attachments/assets/3b67dd81-b9cd-4759-8ede-13cf5961a4a3" />
 
-Feel free to C+H Unless my skins says otherwise ! (Not feeling well skins)
+-‘๑’-  Comf People: @Succubus-Fantasy , @vid4lavida , jay, Kagi, Mo
 
-I am super awkward but pls int ! Otherwise we may never talk.. heh
+<img width="800" height="400<img
+" alt="download (2)" src="https://github.com/user-attachments/assets/38c82d80-484a-4e8c-9bd0-b7c1af4fc504" />
 
-Most of my Jason todd and other Dc skins mention how much I love them.. so look for those names, this Github, or my patreon: 𝕽𝖊𝖉 𝕳𝖔𝖔𝖉 ᶻ 𝗓 𐰁 .ᐟ
-
-I only interact w/ ships if we are friends, since otherwise it's weird.
-
-<img width="736" height="254" alt="yasss" src="https://github.com/user-attachments/assets/cd9d4a22-038d-4c3b-833a-910d47f7cb52" />
-
-
-<img width="704" height="74" alt="download (4)" src="https://github.com/user-attachments/assets/c005ce50-86fb-48f8-b366-a4e7f4673a8b" />
