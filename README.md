@@ -6,7 +6,7 @@
 
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=15&letterSpacing=&duration=4000&pause=200&color=4D0202&multiline=true&width=435&lines=When+death+takes+my+hand;I+will+hold+you+with+the+other" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&letterSpacing=&duration=4000&pause=2&color=4D0202&multiline=true&width=435&lines=When+death+takes+my+hand%2C+I'll+hold+you+with+the+other" alt="Typing SVG" /></a>
 
 
 
