@@ -1,5 +1,5 @@
 <p align="center">
-<img width="540" height="30" alt="Meat xox" src="https://github.com/user-attachments/assets/781d37e3-2383-4ed2-a149-459f4b72aa4a" />
+<img width="1000" height="200" alt="@dziapk0 on insta" src="https://github.com/user-attachments/assets/0adef2e5-9f7c-48eb-9e3f-1fc1806260bf" />
 
 
 
@@ -15,3 +15,5 @@
 <img width="800" height="400<img
 " alt="download (2)" src="https://github.com/user-attachments/assets/38c82d80-484a-4e8c-9bd0-b7c1af4fc504" />
 
+<p align="center">
+Read.me art By @dziapk0 on Twitter
