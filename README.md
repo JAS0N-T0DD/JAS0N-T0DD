@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&letterSpacing=&duration=4000&pause=2&color=4D0202&multiline=true&width=435&lines=When+death+takes+my+hand%2C+I'll+hold+you+with+the+other" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=25&letterSpacing=&duration=4000&pause=100&color=4D0202&width=435&lines=When+death+takes+my+hand;I+will+hold+you+with+the+other;and+promise+to+find+you+in+every+lifetime" alt="Typing SVG" /></a>
 
 <p align="center">
 <img width="101" height="57" alt="tumblr_inline_pe6lc7ijO61v11djx_1280" src="https://github.com/user-attachments/assets/609d27c0-4c77-4a12-b5a5-44acef1f4e2e" /> <img width="150" height="20" alt="bZWkxwk" src="https://github.com/user-attachments/assets/ed5e9baa-fe2a-45f7-9f90-848173f31434" /> <img width="99" height="56" alt="tumblr_pbl4whs7Xl1wlxvjlo4_100" src="https://github.com/user-attachments/assets/8e46c592-f38b-4257-a6c9-3c3c2ceb8a6f" />
