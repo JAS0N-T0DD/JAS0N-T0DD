@@ -21,7 +21,7 @@
 
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&letterSpacing=&duration=4000&pause=10&color=4D0202&multiline=true&width=435&lines=I+survived+because+the+fire+inside+me+was+brighter;Than+the+fire+around+me" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=25&letterSpacing=&duration=4000&pause=100&color=4D0202&width=435&lines=I+survived+because+the+fire+inside+me+;was+brighter+then+the+fire+around+me" alt="Typing SVG" /></a>
 
 
 <p align="center">
